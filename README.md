@@ -1,1 +1,0 @@
-# OpenSlava_Cucumbers_Team_Source
